@@ -10,7 +10,7 @@
 
 - 👯 I’m looking to collaborate on any Kind of Application Development project...
 
-- Contact Me via [Email, alexonyekasm@gmail.com](mailto:alexonyekasm@gmail.com).
+- Contact Me via Email, [alexonyekasm@gmail.com](mailto:alexonyekasm@gmail.com).
   
 
   ## Can't wait to hear from You 😍😍🥰🤩
